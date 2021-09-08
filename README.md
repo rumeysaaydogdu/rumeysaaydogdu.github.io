@@ -1,1 +1,0 @@
-# rumeysaaydogdu.github.io
